@@ -7,3 +7,9 @@ i think my jouney just stared
 **we are getting to some**
 
 *come on follow up*
+> don't disturb me am in class else:
+1. i will give it to you hot
+2. i will purnish you
+3. i will disown you
+
+[contact] [emmanuelchetachibright@gmail.com]
