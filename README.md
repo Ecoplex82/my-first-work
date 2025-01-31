@@ -13,3 +13,5 @@ i think my jouney just stared
 3. i will disown you
 
 [contact] [emmanuelchetachibright@gmail.com]
+
+come here lets start
