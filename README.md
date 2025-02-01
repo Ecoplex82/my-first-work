@@ -17,5 +17,3 @@ i think my jouney just stared**
 come here lets start
 
 ! [see what i mean] [![WIN_20250122_21_50_45_Pro](https://github.com/user-attachments/assets/776d707a-959a-488a-a7cc-a5469fe45f48)
-
-! [![WIN_20250122_21_51_30_Pro](https://github.com/user-attachments/assets/b05bd2ee-36ff-4ea0-be42-1402cfe09cca)
